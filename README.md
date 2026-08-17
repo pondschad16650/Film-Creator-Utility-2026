@@ -1,0 +1,2 @@
+# Film-Creator-Utility-2026
+VideoPatch – Unlock premium video editor features and remove watermarks in CapCut, DaVinci Resolve, Filmora, VideoPad, HitFilm, and Movavi.
